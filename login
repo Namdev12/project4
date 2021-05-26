@@ -1,1 +1,1 @@
-pythan code is a hai
+pythan code is a hai type
